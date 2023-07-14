@@ -1,1 +1,0 @@
-# School_Mangnment_Repo
